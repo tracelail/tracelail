@@ -3,6 +3,7 @@
 - 📍 **Location:** Middlesex, NC
 - 📧 **Email:** lailtrace@gmail.com
 - 🔗 **GitHub:** [tracelail](https://github.com/tracelail)
+- 💼 **LinkedIn:** [Jimmy Lail](www.linkedin.com/in/jimmy-lail-2339aa120)
 
 ## About Me
 
